@@ -74,4 +74,4 @@ April 2005– August 2009
 
 University of Louisville Graduated 2009
 
-Bachelor of Science, Business Administration; Computer Information Systemok at your changes.
+Bachelor of Science, Business Administration; Computer Information Systems
